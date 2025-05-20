@@ -1,1 +1,2 @@
-# tugas-1-7-bisdig
+# sofia merlina yusuf 
+24110310082
